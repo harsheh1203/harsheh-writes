@@ -6,4 +6,4 @@ I also write custom lyrics/notes for special occasions 💌
 
 Focused on original, emotion-driven content with professionalism and timely delivery.
 
-Open to collaborations — would love to work together 🤍✨
+Open to collaborations — would love to work together 🤍✨.
